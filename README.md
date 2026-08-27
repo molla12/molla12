@@ -20,9 +20,9 @@
 
 
 
-## ➪ [𝗗𝗢𝗡𝗔𝗧𝗘](https://molla12.github.io/account)
+## 💸 ➪ [𝗗𝗢𝗡𝗔𝗧𝗘](https://molla12.github.io/account)
 
-![DONATE](https://i.ibb.co/Kj1BXbj1/QR.png)
+![DONATE](https://i.ibb.co/vxYVXPxs/qr-code.png)
 
 <h3><i>𝐅𝐨𝐥𝐥𝐨𝐰 𝐌𝐞 𝐎𝐧 :-</i></h3>
 </p>
