@@ -20,7 +20,7 @@
 
 
 
-## ➪ [𝗗𝗢𝗡𝗔𝗧𝗘](https://account.github.io/account)
+## ➪ [𝗗𝗢𝗡𝗔𝗧𝗘](https://molla12.github.io/account)
 
 ![DONATE](https://i.ibb.co/Kj1BXbj1/QR.png)
 
